@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @shinpansen
 - 👀 I’m interested in praising cats
-- 🌱 I’m currently learning nothing
+- 🌱 I’m currently learning deal with life
 - 💞️ I’m looking to collaborate on nothing
 - 📫 How to reach me : don't
 
